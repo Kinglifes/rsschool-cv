@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Kinglifes.github.io/rsschool-cv/cv
